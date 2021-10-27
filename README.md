@@ -1,3 +1,5 @@
+Please add me as a Agent Developer [Published] on Discord, my username is Bigfoot#2495
+
 # High Gas Agent
 
 ## Description
